@@ -1,6 +1,6 @@
-<a href="https://dar.vin/DLEXC"><img src="https://img.shields.io/badge/Delta%20Executor-%20Download-purple?style=for-the-badge&logo=roblox" height="70"></a>
+<a href="https://urlr.me/!DLEXC"><img src="https://img.shields.io/badge/Delta%20Executor-%20Download-purple?style=for-the-badge&logo=roblox" height="70"></a>
 
-<a href="https://dar.vin/DLEXC"><img src="https://bbs.oppo.com/upload/image/front/thread/20250107/9804125504435648671/1768511380417150983/1768511380417150983.png" height="400"></a>
+<a href="https://urlr.me/!DLEXC"><img src="https://bbs.oppo.com/upload/image/front/thread/20250107/9804125504435648671/1768511380417150983/1768511380417150983.png" height="400"></a>
 
 # Delta Executor ⭐ Delta Executor Roblox ⭐ Delta Executor & Exploit Free 2025
 
